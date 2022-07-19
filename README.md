@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @stereo1302
 - 👀 I’m interested in Spring Forest Qigong, Politcs, Ireland, Politics & many more
 - 🌱 I’m currently learning spanish
-- 💞️ I’m looking to collaborate on dieBasis - political paraty in Germany
+- 💞️ I’m looking to collaborate on dieBasis - political party in Germany
 - 📫 How to reach me via TeleGuard: UBFDXMAJU / jabber: sterodo@xabber.de
 -
 
